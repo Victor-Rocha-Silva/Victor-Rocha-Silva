@@ -61,7 +61,7 @@ I'm always learning, building real projects and improving my skills every day!
 
 ## 📫 Contact
 
-- 💼 LinkedIn: [[your-link-here](https://www.linkedin.com/in/victor-rocha-silva-011341286/)]
+- 💼 LinkedIn: [[Victor Rocha Silva](https://www.linkedin.com/in/victor-rocha-silva-011341286/)]
 - ✉️ Email: [victor.rocha.vr1510@gmail.com]
 - 🌐 Portfolio: coming soon!
 
